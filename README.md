@@ -7,8 +7,11 @@ I used to be a pharmacist, now i learn how to code:)
 2. 16 g yeast
 3. 100 g butter
 4. 220 ml milk
+5. 12 g salt 
+6. 40 g sugar
+-------------
 
-pierogi - poliush dumplings
+pierogi - polish dumplings
 
 
 
