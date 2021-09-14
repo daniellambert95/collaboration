@@ -1,3 +1,17 @@
+Anna Kowalczyk
+-------------
+I used to be a pharmacist, now i learn how to code:)
+
+-------------
+1. 400 g flour
+2. 16 g yeast
+3. 100 g butter
+4. 220 ml milk
+
+pierogi - poliush dumplings
+
+
+
 Daniel Lambert
 ==============
 
